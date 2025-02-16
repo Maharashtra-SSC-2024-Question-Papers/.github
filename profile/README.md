@@ -12,7 +12,7 @@ Engaging with past question papers helps students:
 
 ## Accessing Maharashtra SSC 2024 Question Papers
 
-Students can access Maharashtra SSC 2024 question papers through various online platforms. Websites like [marathi study](https://www.marathistudy.com/2025/02/%20SSC%20Question%20Paper%202024%20Maharashtra%20Board%20PDF%20Download.html)(https://www.marathistudy.com/2025/02/%20SSC%20Question%20Paper%202024%20Maharashtra%20Board%20PDF%20Download.html)) offer subject-wise previous year papers with solutions, available for free download. Additionally, [marathi study](https://www.marathistudy.com/2025/02/%20SSC%20Question%20Paper%202024%20Maharashtra%20Board%20PDF%20Download.html) provides PDFs of English question papers, aiding students in their preparation.
+Students can access Maharashtra SSC 2024 question papers through various online platforms. Websites like [Marathi study](https://www.marathistudy.com/2025/02/%20SSC%20Question%20Paper%202024%20Maharashtra%20Board%20PDF%20Download.html) offer subject-wise previous year papers with solutions, available for free download. Additionally, [marathi study](https://www.marathistudy.com/2025/02/%20SSC%20Question%20Paper%202024%20Maharashtra%20Board%20PDF%20Download.html) provides PDFs of English question papers, aiding students in their preparation.
 
 ## How to Utilize Previous Year Question Papers Effectively
 
