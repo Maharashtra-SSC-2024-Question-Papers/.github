@@ -1,4 +1,4 @@
-# Maharashtra SSC 2024 Question Papers
+# Maharashtra SSC Exam Feb/ Mar2026 Question Papers
 
 The Maharashtra State Board of Secondary and Higher Secondary Education (MSBSHSE) conducts the Secondary School Certificate (SSC) examination for Class 10 students. Practicing previous year question papers is crucial for students aiming to excel in these exams.
 
